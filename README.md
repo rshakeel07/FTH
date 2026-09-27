@@ -1,2 +1,0 @@
-# FTH
-winning team POV
